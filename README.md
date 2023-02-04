@@ -8,3 +8,4 @@
 sakariyeshaaci/sakariyeshaaci is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Magacaygu waa sakariye waxan jeclay habhupka markaa waxan kunolay Africa waliba soomali inaan ku shaqeeyo ayaan rabaa ama aan halkayga ka hawl galiyo 
